@@ -9,7 +9,7 @@
   Right arm hit from under to opponent elbow joints both at the same time (shock the elbow).  
   Attacker is shocked and would loosen the grip
 5. Right hand to ear and inward block to knock out opponent hands (make sure to turn waist while blocking).  
-  Block is to clear the hands, so go to the side first. (Do we push down?)  
+  Block is to clear the hands, so go to the side first. As you clear the arms, bring your right fist to your left hip.  This pulls the attacker down and to the right, exposing the throat.  
   And left hand release
 7. Right hand chop to throat.
   Turn back a bit so not over extending your shoulder when chopping
@@ -19,35 +19,35 @@
 1. Opponent grab & pull from front
 2. Left forward into fighting stance +  
  Left hand over opponent arms and grab opponent hand on right shoulder +  
- Right hand whipping sword hand to the groin
+ Right hand whipping sword hand to the groin; this loosens the grab.
 3. Right hand up to ear
 4. Chop to neck and hold
-5. Right hand outward block in a circular motion to knock out opponent hands into cat stance
+5. Right hand outward block in a circular motion to clear out opponent's arms into cat stance
 
 ## Striking Asp B
 
 1. Opponent grab &amp; pull from front
 2. Left forward into fighting stance +
  Left hand over opponent arms and grab opponent hand on right shoulder +  
- Right hand middle knuckle punch to solar plexus
+ Right hand middle knuckle fist to solar plexus; this loosens the grab
 3. Right hand up to ear while turning to give more power for left hand +  
  Left hand press down to break opponent hold
-4. Right hand hammer fist through temple to shoulder
-5. Chop to neck
+4. Right hand hammer fist through temple to shoulder; this turns attacker head to the left, exposing the throat
+5. Chop to the throat
 
 ## Crash of the Eagle A
 
 1. Opponent grab from the back
-2. Front cross step with right arm raise (left hand guard)
+2. Front cross (twist?) step with right arm raise (left hand guard)
 3. Turn backward into fighting stance +  
- right elbow pin
-4. Elbow upper cut &amp; back
+ right elbow pin attacker's both arms; this brings the attacker's head within elbow strike range
+4. Elbow upper cut &amp; back (to the chin?)
 5. Whip back knuckle to opponent nose
 
 ## Crash of the Eagle B
 
 1. Opponent grab from the back
-2. Front cross step with right arm raise (left hand guard)
+2. Front cross (twist?) step with right arm raise (left hand guard)
 3. Turn backward into fighting stance +  
  right elbow pin
 4. Spider flick or falcon talon or tiger claw
@@ -60,7 +60,7 @@
  right elbow pin +  
  left hand to set
 4. Attacker move back, so b and c are out of range
-5. Left half fist punch
+5. Left half fist punch to the throat
 
 ## Crash of the Eagle D
 
