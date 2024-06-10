@@ -58,13 +58,13 @@ the chops should show the full power chopping into the target.
 2. left hand soft hand block +  
     step a bit to the left into cat stance +  
         left hand at set. 
-(the success of the next reverse punch depends on where you step.
+(the success of the next reverse punch depends on your footwork.
 too far to the side, you couldn't reach the attacker's temple. too small step, you will get hit)
 3. right hand reverse punch to the temple (might have to drop down left hand a bit) and snap back. 
     (attacker now turned away a bit exposing his back because of the hit to temple)
 4. drop both hands in the middle in chicken wrist +  
     make a big circle back to set +  
-        drop down into fighting stance and double palm hit to the kidneys.  
+        drop down into fighting stance and double palm strike to the kidneys.  
 note the distance between hands should be of human width and the hit should be finished with the stance. 
         (attacker bend backward)
 5. quickly grab both shoulders (hard) +
@@ -89,7 +89,7 @@ note the distance between hands should be of human width and the hit should be f
 
 ## Flash of Sliver A
 
-1. attacker stab with knife with right hand
+1. attacker knife stab with right hand
 2. right hand hugging chest and left hand protecting stomach +  
     turning 45 +  
         right leg cresent kick to knock out the knife/hand
@@ -98,7 +98,7 @@ note the distance between hands should be of human width and the hit should be f
 
 ## Flash of Silver B
 
-1. attacker stab with knife with right hand, closer than A
+1. attacker knife stab with right hand, closer than A
 2. right hand hugging chest and left hand protecting stomach +  
     left foot step back into 70/30 + turning 45 +  
         thrust kick with right foot to the knee
