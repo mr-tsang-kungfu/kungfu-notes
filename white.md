@@ -6,7 +6,7 @@
   Not open wide and grab from both side, but directly to the shoulders and keep pushing forward
 3. Left foot back into fighting stance to go along with the attacker's force.  
   Left hand go over attacker's arms and grab opponent wrist on right shoulder (close grip and tight, use thumb too) +  
-  Right arm hit from under to opponent elbow joints both at the same time (shock the elbow).  
+  Right arm hit from under both of the attacker's elbow joints at the same time (shock the elbow).  
   Attacker is shocked and would loosen the grip
 5. Right hand to ear and inward block to knock out opponent hands (make sure to turn waist while blocking).  
   Block is to clear the hands, so go to the side first. As you clear the arms, bring your right fist to your left hip.  This pulls the attacker down and to the right, exposing the throat.  
@@ -16,7 +16,7 @@
 
 ## Striking Asp A
 
-1. Opponent grab & pull from front
+1. Attacker grab & pull from front
 2. Left forward into fighting stance +  
  Left hand over opponent arms and grab opponent hand on right shoulder +  
  Right hand whipping sword hand to the groin; this loosens the grab.
@@ -38,8 +38,8 @@
 ## Crash of the Eagle A
 
 1. Opponent grab from the back
-2. Front cross (twist?) step with right arm raise (left hand guard)
-3. Turn backward into fighting stance +  
+2. Twist step forward with right arm raise (left hand guard)
+3. Turn facing backward into fighting stance +  
  right elbow pin attacker's both arms; this brings the attacker's head within elbow strike range
 4. Elbow upper cut &amp; back (to the chin?)
 5. Whip back knuckle to opponent nose
@@ -47,20 +47,21 @@
 ## Crash of the Eagle B
 
 1. Opponent grab from the back
-2. Front cross (twist?) step with right arm raise (left hand guard)
-3. Turn backward into fighting stance +  
+2. Twist step forward with right arm raise (left hand guard)
+3. Turn facing backward into fighting stance +  
  right elbow pin
-4. Spider flick or falcon talon or tiger claw
+4. Spider flick to the eyes or falcon talon to the eyes or tiger claw to the chin and claw into eyes
 
 ## Crash of the Eagle C
 
 1. Opponent grab from the back
-2. Front cross step with right arm raise (left hand guard)
-3. Turn backward into fighting stance +  
+2. Twisr step forward with right arm raise (left hand guard)
+3. Turn facing backward into fighting stance +  
  right elbow pin +  
- left hand to set
+ left hand to set (not guard?)
 4. Attacker move back, so b and c are out of range
 5. Left half fist punch to the throat
+(Memento: c for coward)
 
 ## Crash of the Eagle D
 
