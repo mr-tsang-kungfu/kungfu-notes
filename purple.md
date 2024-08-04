@@ -3,20 +3,25 @@
 ## Rising Knee
 
 1. attacker right hand punch to the face
-2. left soft hand block, left foot forward into fighting stance +  
-    and right hand chicken wrist parry at the same time to deflect the punch
-3. right hand (big) circle to set while yielding back and side fist to the solar plex into hard bow +  
-    make sure to turn the body a bit to lean into the punch +  
-        attacker should buckle forward exposing the neck.  
-4.  right hand snake up and grab back of attacker's neck.  
-show the grab
-5.  push down / hold the neck +  
-knee up to solar plex, foot in tight snap kick position + 
-raise left hand in chop hand, make sure wrist is not bended
+2. left soft hand block to avoid getting hit on the face, 
+   left foot forward into fighting stance +  
+   and right hand chicken wrist parry at the same time to deflect the punch upwards
+3. right hand circle back to set while yielding back (the stance),
+   now fully loaded,
+   side fist to the solar plex into hard bow +
+   turn from your hip so the punch has your whole body behind it,
+   make sure to turn the body a bit leaning into the punch +  
+   attacker should buckle forward exposing the neck.  
+4. right hand snake up and grab back of attacker's neck.  
+   show the grab
+5. push down / hold the neck +
+   knee up to solar plex, foot in tight snap kick position +
+   raise left hand in chop hand, make sure wrist is not bended
 6. drop down into broken bow (side way) and chop with left hand to the base of the skull.  
-    quickly switch broken bow and chop with right hand to the base of the skull again.    
-the chops should show the full power chopping into the target. 
+   quickly switch broken bow and chop with right hand to the base of the skull again.    
+   the chops should show the full power chopping into the target. 
 7. cat cover
+
 
 ## Crashing Anvil
 
