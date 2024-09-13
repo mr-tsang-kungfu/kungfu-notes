@@ -10,6 +10,8 @@
 
 * [Purple Belt](purple.md)
 
+* [Purple 2 Belt](purple2.md)
+
 * [Chin Na](chinna.md)
 
 * [Nunchuck](nunchuck.md)
